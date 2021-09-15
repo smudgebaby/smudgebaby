@@ -6,5 +6,5 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: zxy1307@bu.edu
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Wanna try wakesurfing
 
